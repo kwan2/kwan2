@@ -30,4 +30,3 @@
 ## 📫 Contact
 - **Email**: jgh9987@gmail.com
 - **LinkedIn**: [관이의 링크드인](https://www.linkedin.com/in/%EA%B4%80%ED%9D%AC-%EC%A0%95-b49a5a301)
-- **Blog**: [관이의 블로그](https://kwanh22.tistory.com)
